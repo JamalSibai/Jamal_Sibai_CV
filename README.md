@@ -1,2 +1,2 @@
 # Jamal_Sibai_CV
-![Jamal_Sibai_CV (6)-1](https://user-images.githubusercontent.com/89388012/141464179-0dc08603-a25b-48ee-ac22-8f03a10ff9f7.png)
+![Jamal_Sibai_CV (7)-1](https://user-images.githubusercontent.com/89388012/141483791-afa48f1c-9447-4e18-b523-cba88d0044e8.png)
